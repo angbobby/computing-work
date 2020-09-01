@@ -1,1 +1,1 @@
-
+"So lets get started on topographical maps... the numbers labelled on both axes helps you identify a location in the map better. As you can see 0325 is the hospital which is just next to the middle point of the map. Draw a line from this point to-" The rest of the class were already 
