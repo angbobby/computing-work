@@ -1,5 +1,3 @@
-
-
 My hobbies:
 - Sleeping
 
